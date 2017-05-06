@@ -1,3 +1,7 @@
+Alexander Aziziani <aaziz13@freeuni.edu.ge>
+5/1/16
+
+to me 
 გამარჯობა, 
 გიგზავნი სავარაუდო შეფასებას და კომენტარებს.
 
